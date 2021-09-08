@@ -21,9 +21,13 @@ Writing and programming codes and changing the degrees of angles in proportion t
 <img src="https://www.online-convert.com/ar/downloadfile/b330c888-464b-4411-8bd2-9680035a412e/1faf31d0-8e9d-4aeb-9a4e-fd5d69966f9b"
      
      
+     
+     
  <img src=" https://www.online-convert.com/ar/downloadfile/b330c888-464b-4411-8bd2-9680035a412e/8f3412bb-5d86-427c-b394-08a4796fb7eb"
  
- <img src=" https://www.online-convert.com/ar/downloadfile/b330c888-464b-4411-8bd2-9680035a412e/6cb8d34c-6e8b-475a-bda0-ffd762303473"
+ 
+ 
+ <img src=" https://www.online-convert.com/ar/downloadfile/b330c888-464b-4411-8bd2-9680035a412e/6cb8d34c-6e8b-475a-bda0-ffd762303473" 
 
 
 
